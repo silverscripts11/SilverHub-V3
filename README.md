@@ -5,7 +5,7 @@
 ### Brand New Script Hub. Having Many Scripts.
 
 
-https://www.roblox.com/game-pass/11858199/SilverHub-Premium Game Link
+https://www.roblox.com/game-pass/11858199/SilverHub-Premium Premium Gamepass Link
 
 
 
